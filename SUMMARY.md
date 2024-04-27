@@ -23,7 +23,7 @@
 - [**伯克希尔·哈撒韦巨大成功的三个被低估的原因** —— 查理和他的搭档沃伦·巴菲特诊断了伯克希尔财富增长中一些更不被人欣赏的方面](three_reasons_berkshire_success.md)
 - [**共同工作：为什么伟大的伙伴关系能成功** —— 信任是伟大关系的关键，特别是商业伙伴关系](working_together.md)
 - [**能力圈** —— 如果查理为自己骄傲的是一件事，那就是他知道自己知道什么，不知道什么。那就是能力圈](circle_of_competence.md)
-- [**性格比智商更重要** —— “如果你一直在学习，你就有了一个奇妙的优势。”](temperament_is_more_important_than _iq.md)
+- [**性格比智商更重要** —— “如果你一直在学习，你就有了一个奇妙的优势。”](temperament_is_more_important_than_iq.md)
 - [**查理·芒格为什么认为能源独立是一个非常愚蠢的想法** —— 查理对“能源独立”持有一个非常不受欢迎的观点](energy_independence_is_a_stupid_idea.md)
 - [**持有观点所需的工作** —— 如何少错很多？比其他人更了解论点的另一面](the_work_required_to_have_an_opinion.md)
 - [**做出有效决策的两步过程** —— 你需要分析一项重大决策中的变量以及你的大脑自然会误导你的地方](the_munger_two_step.md)
