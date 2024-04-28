@@ -1,6 +1,10 @@
 # 查理·芒格：来自世界上最不受约束的亿万富翁的智慧与机智
 
-<div align="left">
+
+**[在中国这块辽阔的土地上，有许多和我一样的人，我们欣赏查理芒格，追求理性的生活。虽然我们素未谋面，但我感受到你们的存在。如果你正感到困惑或孤独，请加入我们这个团体，让我们相互支持，共同前行**
+
+**[点击链接加入群聊【永远的查理芒格】](https://qm.qq.com/q/FVBeXP6C8o)**
+<div align="center">
     <img src="images/qq_group.png" alt="描述文字" width="200" height="300">
 </div>
 
@@ -98,3 +102,9 @@
 ## 书籍推荐：
 - 查理·芒格推荐的20本书，让你变得更聪明
 - 查理·芒格再推荐的19本书
+
+
+**[点击链接加入群聊【永远的查理芒格】](https://qm.qq.com/q/FVBeXP6C8o)**
+<div align="center">
+    <img src="images/qq_group.png" alt="描述文字" width="200" height="300">
+</div>
