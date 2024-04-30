@@ -1,6 +1,7 @@
 # 如何保证一生痛苦
 
 [如果你也喜欢查理芒格，这里有关于他的一切](https://ayaseeri.gitbook.io/charlie-munger/)
+**[点击链接加入群聊【永远的查理芒格】](https://qm.qq.com/q/FVBeXP6C8o)**
 
 
 哈佛1986年6月13日，查理-芒格
@@ -82,6 +83,7 @@
 先生们，愿你们在漫长人生中的每一天，都能以低为目标，步步高升。
 
 [如果你也喜欢查理芒格，这里有关于他的一切](https://ayaseeri.gitbook.io/charlie-munger/)
+**[点击链接加入群聊【永远的查理芒格】](https://qm.qq.com/q/FVBeXP6C8o)**
 
 
 
